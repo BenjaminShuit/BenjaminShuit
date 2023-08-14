@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BenjaminShuit
+- 👀 I’m interested in Coding and Music
+- 🌱 I’m currently learning Computer Science in Inti Penang
+- 💞️ I’m looking to collaborate on Anything :)
+- 📫 DM me on instagram @BenjaminShuit
